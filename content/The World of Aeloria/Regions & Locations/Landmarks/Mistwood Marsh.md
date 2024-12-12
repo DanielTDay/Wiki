@@ -1,0 +1,3 @@
+- Like the everglades, corrupt vibe.
+- The water is "Drinkable", not clean.
+- Knee to waste deep water, patches of dry solid land.

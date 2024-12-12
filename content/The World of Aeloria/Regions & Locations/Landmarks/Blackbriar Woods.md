@@ -1,0 +1,6 @@
+- Yes there are mythical creatures that life in the woods
+- PNW, old piney, mossy, old redwood. Woods are alive with animals
+- Sits in a basin, small, temperate climate
+- Magical, no season. Insulated from weather changes
+- a Druid tride could live here
+- Like a thick wall of trees. In the middle of some plains

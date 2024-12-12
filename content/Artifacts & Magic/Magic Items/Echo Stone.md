@@ -1,0 +1,1 @@
+- **Description:** A smooth stone that, when held, can replay any sound it has "heard" in the last 24 hours.

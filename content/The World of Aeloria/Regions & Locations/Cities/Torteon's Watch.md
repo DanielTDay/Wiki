@@ -1,0 +1,1 @@
+1. Torteon's watch is a base for the wanderers on the mainland and is supported mostly by seafaring endeavors by the sea dwarves. it is trading hub for the sea dwarves and where one would go to begin their holy pilgrammage or to sell any item of value.

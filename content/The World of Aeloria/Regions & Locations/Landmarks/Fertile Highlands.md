@@ -1,0 +1,4 @@
+- Immediately goes up 1000s of feet
+- Formed by an old volcano
+- Top of the land is very fertile, up to 10000 feet.
+- Scotland-like

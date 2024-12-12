@@ -1,0 +1,1 @@
+Torteons barnacle is a holy land for the wanderers and the wanderers consider a trip to toerteon's barnacle a holy pilgrammage.

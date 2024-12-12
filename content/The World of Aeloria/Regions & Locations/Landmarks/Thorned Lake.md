@@ -1,0 +1,1 @@
+Thorned Lake is an ancient and mysterious entity, steeped in forgotten magic and bound by the countless promises, secrets, and memories it has claimed from travelers over centuries. When a promise is made to Thorned Lake, it is sealed by the lake’s power, and breaking such a promise invites dark consequences. The lake never forgets, and the price for breaking a vow is steep.

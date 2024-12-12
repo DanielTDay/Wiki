@@ -1,0 +1,6 @@
+- Large Island north
+- Travels West to East
+- Doesn't Need food, photosynthesis from trees
+- Early summer (west), Late (east). Always at the same latitude.
+- Symbolic Relationship with sea animals.
+- Top of the shell. Non-Verbal. Immortal??

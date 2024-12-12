@@ -1,0 +1,10 @@
+- White sand beaches, tropical land
+- Sparse sandy vegetation
+- Island rain forest (Fiji, Hawaii)
+- Lots of animals and creatures
+- Interesting Islands and small islands.
+- Very pretty, diverse life
+- Thunderstorms, pop-up storms, theres a monsoon season. Yearly (6 Months)
+- TROPICAL ISLAND
+- Lots of palms,a nd inland skinny tall trees, transitions into massive trees.
+- Diverse Diet - 5-10 species of predators. Microdiversity

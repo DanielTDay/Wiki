@@ -1,0 +1,1 @@
+- Goliaths who follow the mountain Sovereign. Founded a city Frost Peak Citadel. The goliaths advance and are masters of architecture building a fortress on the side of the Stun Zeed mountains while preserving the natural look and beauty of the mountain Untitled

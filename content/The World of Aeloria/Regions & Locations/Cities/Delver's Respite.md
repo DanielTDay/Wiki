@@ -1,0 +1,1 @@
+Delvers respite was founded when the sea dwarves found rich ore deposits inside of torteon's beard and they founded a main hub for people to trade ore and rest between delves for ore.

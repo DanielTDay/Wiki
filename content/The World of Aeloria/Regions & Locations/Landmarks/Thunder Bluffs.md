@@ -1,0 +1,5 @@
+- Covered with torrential rain and thunderstorms
+- Lots of "terrain"
+- Constant thunder/lightning
+- Constant mix of water from the rivers of the world
+- Waterfalls, trees, humids

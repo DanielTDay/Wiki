@@ -1,0 +1,4 @@
+- Lots of Coral Reefs
+- Ocean Gulf, calm waters, bountiful fishing.
+- Temperate, could get hot
+- Cool sealife, calm waters

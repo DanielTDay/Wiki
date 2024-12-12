@@ -1,0 +1,8 @@
+- Dueling Peaks
+- No Frozed tips
+- Mountain Caves, deep earth caves. Iron Forge.
+- "Dwarven fortress" location
+- Opens into a giant crystal cave system. 15 x 15 feet - open, expansive
+- Giant Anthill
+- Mixture of bedrock/limestock. Lots of gems and minerals.
+- Crystals are neutral, potential for arcana properties.

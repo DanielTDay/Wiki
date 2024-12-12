@@ -1,0 +1,7 @@
+- Windy, Rainy, Raised portion of the ocean
+- Land bridge, salt area, constantly moving, shimmering.
+- Unhospitable, except for a burrowing creatures. That seek those that try to cross the salts.
+- Not much life could live there.
+- Based on US Salt flats
+- Wind Storms, tropical climate, thunderstorms in the afternoon. Not Dust storms.
+- Its popular - 70% chance success rate

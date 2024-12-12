@@ -1,0 +1,15 @@
+- Extreme MountainTop Snow
+- Colorado Ski Area
+
+- Cold snowy Mountains
+- Not Extreme
+- Appalachian Mountains
+- Wet Snow
+- Livable Mountain Area.
+- General Elevation Gain.
+- Forested, evergreen forest.
+- Rocky Area
+- Temperate, Cold winters
+
+1. Celestial Convergence: Day of Weightlessness - Celestial bodies align in rare configuration once a year where gravity around the tallest part of the world (Stun Zeed Mountains) is 1/4 for the duration of the day. Throughout the day, the laws of physics would be temporarily suspended, allowing characters to leap great distances, walk on walls and ceilings, and navigate through environments in unconventional ways. However, this temporary reprieve from gravity could also introduce dangers, such as floating hazards, unpredictable trajectories, and the risk of falling into the void.
+	1. Gravity is 1/4ed for the whole day . Its the only time you can cross the crevice. 1 day

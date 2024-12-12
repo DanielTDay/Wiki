@@ -1,0 +1,1 @@
+- **Royal Signet Ring:** The queen’s personal seal, used to authorize important documents, signifying high importance and trust.

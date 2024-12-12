@@ -1,0 +1,1 @@
+Middle age, dragonborne, oversees the entire mountain. Generally kind and caring with main focus of preserving the nature and balance of the mountain[JournalEntry.x84ABSz7legTEJVe](JournalEntry.x84ABSz7legTEJVe)
